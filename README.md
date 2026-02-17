@@ -1,0 +1,2 @@
+# Inovacao_Sustentabilidade_e_Competitividade_Empresarial_Sexta
+Entregas das Atividades para o professor Robson Calvetti
